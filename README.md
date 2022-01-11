@@ -1,1 +1,0 @@
-# kyrgyz_fruits
